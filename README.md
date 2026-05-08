@@ -1,1 +1,1 @@
-# home
+dasar komputer
