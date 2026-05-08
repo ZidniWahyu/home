@@ -1,1 +1,2 @@
 dasar komputer
+assalamualaikum
